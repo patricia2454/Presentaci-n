@@ -31,3 +31,4 @@ Herramientas Colaborativas:
 ✔Metología de trabajo SCRUM.
 ✔Inglés Intermedio
 ✔Azure
+https://www.linkedin.com/in/patricia-m%C3%A9ndez-tovar-3919bb169/
